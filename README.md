@@ -1,1 +1,1 @@
-# TheNameIsEaston.github.io
+# [siriusxm-activator](https://github.com/parker-stephens/siriusxm-activator)
